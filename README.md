@@ -1,1 +1,6 @@
 # kek_templatecscsdcsdcsdcsdc
+
+
+clkmcksmdclsmdc
+dclwdckmwcd
+dcwmdpcwpcomwepcmwec
